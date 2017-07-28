@@ -9,4 +9,4 @@ she invented a hi-five
 with a really cool dive  
 which will forever be alive   
 
-hi hi hi  
+hi hi hi hi hi   
